@@ -1,0 +1,2 @@
+# Inox 304, 201, 430, 316 Có Bị Hút Nam Châm Không? Sự Thật Cần Biết  Inox nào hút nam châm? Khám phá sự thật về từ tính của inox 304, 316, 201 và 430 cùng HaVi Việt Nam. #Inox304
+https://havivietnam.com/inox-304-201-430-316-co-bi-hut-nam-cham-khong/  Xem chi tiết bài viết tại website của chúng tôi: [Inox Havi Việt Nam](https://havivietnam.com/)
