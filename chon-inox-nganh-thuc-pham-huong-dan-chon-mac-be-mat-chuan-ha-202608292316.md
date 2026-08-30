@@ -1,0 +1,1 @@
+# Chọn Inox Ngành Thực Phẩm: Hướng Dẫn Chọn Mác, Bề Mặt & Chuẩn HACCP  Bí quyết chọn inox ngành thực phẩm chuẩn HACCP! Phân biệt SUS 304 & 316, bề mặt 2B/BA chống vi khuẩn cho nhà máy F&B. #InoxHavi https://havivietnam.com/inox-nganh-thuc-pham/  Xem chi tiết bài viết tại website của chúng tôi: [Inox Havi Việt Nam](https://havivietnam.com/)
