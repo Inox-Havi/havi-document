@@ -1,0 +1,1 @@
+# Ống Inox Thành Mỏng (0.3 - 1.2mm): Barem & Bảng Giá Sỉ Tại Tổng Kho Havi  Ống inox thành mỏng 0.3-1.2mm phi 6-114mm, bề mặt BA/HL chuẩn barem. Báo giá xưởng Havi 0963800396. #InoxHavi https://havivietnam.com/tim-hieu-ve-ong-inox-thanh-mong/  Xem chi tiết bài viết tại website của chúng tôi: [Inox Havi Việt Nam](https://havivietnam.com/)
