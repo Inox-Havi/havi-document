@@ -1,0 +1,3 @@
+# Sự Khác Biệt Giữa Inox 316 và 316L - Loại Nào Tốt Hơn Cho Công Trình?  Tìm hiểu ngay sự khác biệt giữa Inox 316 và 316L để chọn vật liệu tối ưu cho bồn chứa và đường ống công nghiệp. #Inox316L https://havivietnam.com/su-khac-biet-giua-inox-316-va-316l/  Xem chi tiết bài viết tại website của chúng tôi: [Inox Havi Việt Nam](https://havivietnam.com/)
+
+📄 **Tài liệu đính kèm:** [Xem Brochure PDF trực tuyến](https://github.com/Inox-Havi/havi-document/blob/main/pdf/brochure-inox-1788924726.pdf)
