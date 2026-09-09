@@ -1,0 +1,3 @@
+# So Sánh Inox 316L Và 304: Tiêu Chuẩn Y Tế & Vi Sinh  So sánh Inox 316L và 304 chuẩn y tế & vi sinh. Lựa chọn vật liệu tối ưu cho bồn dược phẩm và cấy ghép y khoa. #Inox https://havivietnam.com/so-sanh-inox-316l-va-304/  Xem chi tiết bài viết tại website của chúng tôi: [Inox Havi Việt Nam](https://havivietnam.com/)
+
+📄 **Tài liệu đính kèm:** [Xem Brochure PDF trực tuyến](https://github.com/Inox-Havi/havi-document/blob/main/pdf/brochure-inox-1788929423.pdf)
