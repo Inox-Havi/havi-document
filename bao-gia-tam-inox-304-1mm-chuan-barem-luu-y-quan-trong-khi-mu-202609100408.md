@@ -1,0 +1,3 @@
+# Báo Giá Tấm Inox 304 1mm Chuẩn Barem & Lưu Ý Quan Trọng Khi Mua  Cập nhật bảng giá tấm inox 304 1mm mới nhất, đủ ly, chuẩn ASTM A240 tại Tổng kho Havi. Hỗ trợ cắt laser CNC chính xác theo bản vẽ cho mọi dự án! #Inox304 https://havivietnam.com/tam-inox-304-1mm-gia-ca-cap-nhat-uu-diem-va-luu-y/  Xem chi tiết bài viết tại website của chúng tôi: [Inox Havi Việt Nam](https://havivietnam.com/)
+
+📄 **Tài liệu đính kèm:** [Xem Brochure PDF trực tuyến](https://github.com/Inox-Havi/havi-document/blob/main/pdf/brochure-inox-1789027622.pdf)
