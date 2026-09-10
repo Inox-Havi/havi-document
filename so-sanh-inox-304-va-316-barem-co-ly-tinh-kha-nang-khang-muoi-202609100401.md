@@ -1,0 +1,3 @@
+# So Sánh Inox 304 Và 316: Barem, Cơ Lý Tính & Khả Năng Kháng Muối Biển  Phân biệt Inox 304 và 316 chuẩn xác nhất cho công trình ven biển. Tra cứu barem cơ tính và báo giá mới nhất từ Havi. #Inox304 https://havivietnam.com/bang-so-sanh-inox-304-va-inox-316/  Xem chi tiết bài viết tại website của chúng tôi: [Inox Havi Việt Nam](https://havivietnam.com/)
+
+📄 **Tài liệu đính kèm:** [Xem Brochure PDF trực tuyến](https://github.com/Inox-Havi/havi-document/blob/main/pdf/brochure-inox-1789027167.pdf)
