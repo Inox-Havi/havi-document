@@ -1,0 +1,3 @@
+# Tấm Inox 304 Dày 1mm: Barem Khối Lượng Và Kỹ Thuật Gia Công Cơ Khí  Tìm hiểu barem khối lượng và kỹ thuật gia công cắt laser, chấn CNC tấm inox 304 dày 1mm tại Tổng kho Havi. Liên hệ ngay 0963.800.396! #Inox304 https://havivietnam.com/tam-inox-304-day-1mm/  Xem chi tiết bài viết tại website của chúng tôi: [Inox Havi Việt Nam](https://havivietnam.com/)
+
+📄 **Tài liệu đính kèm:** [Xem Brochure PDF trực tuyến](https://github.com/Inox-Havi/havi-document/blob/main/pdf/brochure-inox-1789031740.pdf)
