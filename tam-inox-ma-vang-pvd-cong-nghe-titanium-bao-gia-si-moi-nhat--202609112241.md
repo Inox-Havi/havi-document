@@ -1,0 +1,3 @@
+# Tấm Inox Mạ Vàng PVD: Công Nghệ Titanium & Báo Giá Sỉ Mới Nhất 2026  Cung cấp tấm inox mạ vàng PVD chuẩn 304, bề mặt vàng gương 8K và xước hairline siêu bền cho nội thất cao cấp. #InoxPVD https://havivietnam.com/inox-ma-vang/  Xem chi tiết bài viết tại website của chúng tôi: [Inox Havi Việt Nam](https://havivietnam.com/)
+
+📄 **Tài liệu đính kèm:** [Xem Brochure PDF trực tuyến](https://github.com/Inox-Havi/havi-document/blob/main/pdf/brochure-inox-1789180762.pdf)
