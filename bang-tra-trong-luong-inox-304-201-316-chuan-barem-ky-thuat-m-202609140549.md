@@ -1,0 +1,3 @@
+# Bảng Tra Trọng Lượng Inox 304, 201, 316 Chuẩn Barem Kỹ Thuật Mới Nhất  Cập nhật ngay bảng tra trọng lượng inox 304, 201, 316 chuẩn barem kỹ thuật cho mọi quy cách tấm, ống, hộp. Hỗ trợ tính toán vật tư nhanh chóng cho mọi dự án! https://havivietnam.com/bang-quy-doi-trong-luong-inox-chi-tiet-304-201-316/ #Inox  Xem chi tiết bài viết tại website của chúng tôi: [Inox Havi Việt Nam](https://havivietnam.com/)
+
+📄 **Tài liệu đính kèm:** [Xem Brochure PDF trực tuyến](https://github.com/Inox-Havi/havi-document/blob/main/pdf/brochure-inox-1789379063.pdf)
