@@ -1,0 +1,3 @@
+# Công Thức Tính Trọng Lượng Tấm Inox 304 Chuẩn Xác Và Nhanh Chóng  Bỏ túi ngay công thức tính trọng lượng tấm inox 304 chuẩn xác với hệ số 7.93 giúp tối ưu chi phí và kiểm soát vật tư hiệu quả cho nhà xưởng cơ khí! #Inox https://havivietnam.com/cong-thuc-tinh-trong-luong-tam-inox-304-chinh-xac-nhat/  Xem chi tiết bài viết tại website của chúng tôi: [Inox Havi Việt Nam](https://havivietnam.com/)
+
+📄 **Tài liệu đính kèm:** [Xem Brochure PDF trực tuyến](https://github.com/Inox-Havi/havi-document/blob/main/pdf/brochure-inox-1789526598.pdf)
