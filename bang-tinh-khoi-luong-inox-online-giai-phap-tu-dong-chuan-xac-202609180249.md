@@ -1,0 +1,3 @@
+# Bảng Tính Khối Lượng Inox Online: Giải Pháp Tự Động & Chuẩn Xác Cho Kỹ Sư  Công cụ tính khối lượng inox online miễn phí: tự động tra cứu trọng lượng tấm, ống, hộp, láp inox 304, 316, 201 siêu nhanh và chính xác cho kỹ sư cơ khí! #Inox #Havi https://havivietnam.com/trang-tinh-khoi-luong-inox/  Xem chi tiết bài viết tại website của chúng tôi: [Inox Havi Việt Nam](https://havivietnam.com/)
+
+📄 **Tài liệu đính kèm:** [Xem Brochure PDF trực tuyến](https://github.com/Inox-Havi/havi-document/blob/main/pdf/brochure-inox-1789714099.pdf)
