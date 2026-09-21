@@ -1,0 +1,3 @@
+# Inox Ngành Dược Phẩm: Vì Sao Bắt Buộc Sử Dụng Bề Mặt BA Chuẩn GMP-WHO?  Inox ngành dược phẩm bắt buộc dùng bề mặt BA và SUS 316L để chống vi khuẩn Biofilm chuẩn GMP-WHO. #InoxHavi https://havivietnam.com/inox-nganh-duoc-pham/  Xem chi tiết bài viết tại website của chúng tôi: [Inox Havi Việt Nam](https://havivietnam.com/)
+
+📄 **Tài liệu đính kèm:** [Xem Brochure PDF trực tuyến](https://github.com/Inox-Havi/havi-document/blob/main/pdf/brochure-inox-1789965383.pdf)
