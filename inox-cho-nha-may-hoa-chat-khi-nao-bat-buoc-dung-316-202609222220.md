@@ -1,0 +1,3 @@
+# Inox Cho Nhà Máy Hoá Chất: Khi Nào Bắt Buộc Dùng 316?  Khi nào nhà máy hóa chất bắt buộc dùng Inox 316/316L chịu axit và clo? Xem ngay tiêu chuẩn kỹ thuật từ Inox Havi! #Inox316L https://havivietnam.com/inox-cho-nha-may-hoa-chat/  Xem chi tiết bài viết tại website của chúng tôi: [Inox Havi Việt Nam](https://havivietnam.com/)
+
+📄 **Tài liệu đính kèm:** [Xem Brochure PDF trực tuyến](https://github.com/Inox-Havi/havi-document/blob/main/pdf/brochure-inox-1790129922.pdf)
