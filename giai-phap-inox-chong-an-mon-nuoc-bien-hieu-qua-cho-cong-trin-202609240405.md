@@ -1,0 +1,3 @@
+# Giải Pháp Inox Chống Ăn Mòn Nước Biển Hiệu Quả Cho Công Trình Ven Biển  Bí quyết chọn inox chống ăn mòn nước biển chuẩn kỹ thuật cho công trình ven bờ. Tránh rỉ sét với SUS 316. #InoxHavi https://havivietnam.com/inox-chong-an-mon-nuoc-bien/  Xem chi tiết bài viết tại website của chúng tôi: [Inox Havi Việt Nam](https://havivietnam.com/)
+
+📄 **Tài liệu đính kèm:** [Xem Brochure PDF trực tuyến](https://github.com/Inox-Havi/havi-document/blob/main/pdf/brochure-inox-1790237021.pdf)
