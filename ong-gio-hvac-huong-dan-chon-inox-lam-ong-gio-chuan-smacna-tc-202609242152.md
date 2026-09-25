@@ -1,0 +1,3 @@
+# Ống Gió HVAC: Hướng Dẫn Chọn Inox Làm Ống Gió Chuẩn SMACNA & TCVN 5687  Bí quyết chọn inox làm ống gió HVAC chuẩn SMACNA & TCVN 5687. Tra cứu độ dày và mác thép SUS 304/201/316 tối ưu từ Inox Havi. #InoxHavi https://havivietnam.com/inox-lam-ong-gio/  Xem chi tiết bài viết tại website của chúng tôi: [Inox Havi Việt Nam](https://havivietnam.com/)
+
+📄 **Tài liệu đính kèm:** [Xem Brochure PDF trực tuyến](https://github.com/Inox-Havi/havi-document/blob/main/pdf/brochure-inox-1790301060.pdf)
