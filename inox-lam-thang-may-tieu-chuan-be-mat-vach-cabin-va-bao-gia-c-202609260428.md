@@ -1,0 +1,3 @@
+# Inox Làm Thang Máy: Tiêu Chuẩn Bề Mặt Vách Cabin và Báo Giá Chi Tiết | HaVi  Bí quyết chọn inox ốp vách cabin thang máy chuẩn kỹ thuật: Hairline, gương No.8 và PVD SUS 304 chính hãng HaVi giúp công trình bền đẹp vượt thời gian. #InoxHaVi https://havivietnam.com/inox-lam-thang-may/  Xem chi tiết bài viết tại website của chúng tôi: [Inox Havi Việt Nam](https://havivietnam.com/)
+
+📄 **Tài liệu đính kèm:** [Xem Brochure PDF trực tuyến](https://github.com/Inox-Havi/havi-document/blob/main/pdf/brochure-inox-1790411216.pdf)
