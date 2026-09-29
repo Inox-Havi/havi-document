@@ -1,0 +1,3 @@
+# Inox Làm Nội Thất: Mác Nào Đủ Cho Tủ Bếp, Kệ?  Nên dùng inox 304 hay 201 làm tủ bếp và kệ gia đình? Khám phá ngay tiêu chuẩn chọn mác inox nội thất cao cấp bền đẹp 30 năm tại Inox HaVi! #InoxHaVi https://havivietnam.com/inox-lam-noi-that-dung-cho-tu-bep/  Xem chi tiết bài viết tại website của chúng tôi: [Inox Havi Việt Nam](https://havivietnam.com/)
+
+📄 **Tài liệu đính kèm:** [Xem Brochure PDF trực tuyến](https://github.com/Inox-Havi/havi-document/blob/main/pdf/brochure-inox-1790664245.pdf)
