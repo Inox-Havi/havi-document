@@ -1,0 +1,3 @@
+# Tấm Lưới Inox: Phân Loại, Quy Cách & Ứng Dụng Lọc Chuẩn Công Nghiệp | HaVi  Chuyên cung cấp và gia công tấm lưới inox đan, hàn, đục lỗ CNC chuẩn công nghiệp 304/316 tại tổng kho HaVi. Tư vấn kỹ thuật 24/7! #InoxHaVi https://havivietnam.com/tam-luoi-inox-phan-loai-quy-cach-va-ung-dung-loc/  Xem chi tiết bài viết tại website của chúng tôi: [Inox Havi Việt Nam](https://havivietnam.com/)
+
+📄 **Tài liệu đính kèm:** [Xem Brochure PDF trực tuyến](https://github.com/Inox-Havi/havi-document/blob/main/pdf/brochure-inox-1790756681.pdf)
